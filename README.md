@@ -10,4 +10,6 @@ I am a software developer having well over 4 years of experience working with PH
 
 If you want to know more about me, follow me [on twitter](https://twitter.com/Jonathanftwz2).
 
+Currently working at [UHCGames](https://twitter.com/UHCGamesBE) as Owner / Leader Developer.
+
 ---
